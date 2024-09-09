@@ -1,5 +1,3 @@
-- 👋 Hi, I’m @marginis
-
 
 - 📫 How to reach me ... don't :}
 
